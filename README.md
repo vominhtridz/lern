@@ -1,1 +1,1 @@
-hello my friend
+anh tên thật là võ minh trí
